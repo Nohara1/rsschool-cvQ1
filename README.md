@@ -1,1 +1,0 @@
-https://Nohara1.github.io/rsschool-cvQ1/cv
